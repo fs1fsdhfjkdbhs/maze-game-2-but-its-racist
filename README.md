@@ -1,0 +1,1 @@
+Hello! This is a mod for a game on itch.io named "Maze Game :D 2" which was made with Scratch, this mod was also made with Scratch, to visit the website for the game, make sure to copy this link: https://fs1fsdhfjkdbhs.github.io/maze-game-2-but-its-racist/MazeGame2ButIt'sRacist.html 
